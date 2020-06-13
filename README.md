@@ -1,0 +1,1 @@
+Map of the word with european countries selected
